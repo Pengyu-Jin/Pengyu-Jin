@@ -1,5 +1,5 @@
 
-### 选择直面残酷的人生，觉悟并没有让我幸福，只是在回应我心底的声音：所谓命运，不过是沉睡的奴隶。
+#### 选择直面残酷的人生，觉悟并没有让我幸福，只是在回应我心底的声音：所谓命运，不过是沉睡的奴隶。
 
 <!--
 **Jin-Pengyu/Jin-Pengyu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
