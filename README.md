@@ -1,6 +1,12 @@
 
 #### 选择直面残酷的人生，觉悟并没有让我幸福，只是在回应我心底的声音：所谓命运，不过是沉睡的奴隶。
 
+#### Choosing to confront the brutal reality of life, my awakening has not brought me happiness—it merely echoes the voice of my heart: the so-called destiny is nothing but a sleeping slave.
+
+An ordinary graduate student, but dreams big. 
+
+> dfhkj 
+
 <!--
 **Jin-Pengyu/Jin-Pengyu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
