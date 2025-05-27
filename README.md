@@ -3,9 +3,11 @@
 
 #### Choosing to confront the brutal reality of life, my awakening has not brought me happiness—it merely echoes the voice of my heart: the so-called destiny is nothing but a sleeping slave.
 
-An ordinary graduate student, but dreams big. 
+An ordinary graduate student, but dreams big. I hope to save myself like *Andy Dufresne*.
 
-> dfhkj 
+> Remember, Red, hope is a good thing, maybe the best of things, and no good thing ever dies. I will be hoping that this letter finds you, and finds you well.
+>
+> -- The Shawshank Redemption
 
 <!--
 **Jin-Pengyu/Jin-Pengyu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
