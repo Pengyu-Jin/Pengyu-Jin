@@ -7,6 +7,10 @@ An ordinary graduate student, but dreams big. I hope to save myself like *Andy D
 
 > Remember, Red, hope is a good thing, maybe the best of things, and no good thing ever dies. I will be hoping that this letter finds you, and finds you well.
 >
+> I hope to see my friend and shake his hand. I hope the Pacific is as blue as it has been in my dreams. I hope.
+>
+> Get busy living, or get busy dying.
+> 
 > *The Shawshank Redemption*
 
 <!--
